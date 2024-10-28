@@ -2,7 +2,7 @@
 
 Are you ready to embark on a thrilling adventure with Coin Master? If you’re looking for a way to enhance your gameplay, you’ve come to the right place! Today, we’re sharing the latest **Coin Master free spins and coins links** that will help you progress faster and enjoy the game even more. But first, let’s dive into what makes Coin Master such a beloved game and why you should take advantage of these free offers!
 
-### [✅CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/coin/master/)
+#### [✅CLICK HERE TO GET NOW FREE!](https://freeforyou.xyz/coin/master/)
 
 ## What is Coin Master?
 
